@@ -1,2 +1,0 @@
-# kayshasoelistyo-cv
-My CV
